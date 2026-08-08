@@ -1,4 +1,4 @@
-# Hi, I'm Samaira 👋
+# Hi, I'm Monika 👋
 
 ### FP&A | Financial Planning & Analysis | Banking & FinTech | UAE
 
@@ -38,5 +38,5 @@ Exploring FP&A, Finance, Accounting, and Operations roles across UAE banking and
 
 ### 📫 Connect with me
 
-- LinkedIn: [add your LinkedIn URL here]
-- Email: [add your email here]
+- LinkedIn: linkedin.com/in/monika-singh-55aa79163 
+- Email: Monikasingh97078@gmail.com
